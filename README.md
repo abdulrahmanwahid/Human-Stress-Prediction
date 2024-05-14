@@ -3,7 +3,7 @@ Nama: Abdul Rahman Wahid
 
 Username dicoding: abdulrahmanwahid
 
-![human resources problems]([[https://user-images.githubusercontent.com/58927608/232183728-df31ce54-b58c-4163-a563-5df9d3daf167.jpg](https://www.istockphoto.com/id/foto-foto/stress](https://www.freepik.com/free-photo/portrait-asian-girl-feeling-headache-migraine-being-ill-standing-white-tshirt-white-background_23648342.htm#query=stress&position=9&from_view=keyword&track=sph&uuid=624f0291-a67d-4859-a539-c4a803a074bb)](https://images.theconversation.com/files/181154/original/file-20170807-16724-9vx8d1.jpg?ixlib=rb-4.1.0&q=45&auto=format&w=754&h=503&fit=crop&dpr=1))
+![human resources problems]([https://user-images.githubusercontent.com/58927608/232183728-df31ce54-b58c-4163-a563-5df9d3daf167.jpg](https://www.istockphoto.com/id/foto-foto/stress](https://www.freepik.com/free-photo/portrait-asian-girl-feeling-headache-migraine-being-ill-standing-white-tshirt-white-background_23648342.htm#query=stress&position=9&from_view=keyword&track=sph&uuid=624f0291-a67d-4859-a539-c4a803a074bb)](https://images.theconversation.com/files/181154/original/file-20170807-16724-9vx8d1.jpg?ixlib=rb-4.1.0&q=45&auto=format&w=754&h=503&fit=crop&dpr=1))
 
 [Sumber Gambar]([https://www.istockphoto.com/id/foto-foto/stress](https://www.freepik.com/free-photo/portrait-asian-girl-feeling-headache-migraine-being-ill-standing-white-tshirt-white-background_23648342.htm#query=stress&position=9&from_view=keyword&track=sph&uuid=624f0291-a67d-4859-a539-c4a803a074bb)](https://images.theconversation.com/files/181154/original/file-20170807-16724-9vx8d1.jpg?ixlib=rb-4.1.0&q=45&auto=format&w=754&h=503&fit=crop&dpr=1))
 
