@@ -5,7 +5,7 @@ Username dicoding: abdulrahmanwahid
 
 ![human resources problems](https://user-images.githubusercontent.com/58927608/232183728-df31ce54-b58c-4163-a563-5df9d3daf167.jpg)
 
-[Sumber Gambar](https://blog.peoplespheres.com/en-us/what-problems-do-human-resources-managers-face-every-day](https://www.istockphoto.com/id/foto-foto/stress)
+[Sumber Gambar](https://www.istockphoto.com/id/foto-foto/stress](https://www.freepik.com/free-photo/portrait-asian-girl-feeling-headache-migraine-being-ill-standing-white-tshirt-white-background_23648342.htm#query=stress&position=9&from_view=keyword&track=sph&uuid=624f0291-a67d-4859-a539-c4a803a074bb))
 
 | | Deskripsi |
 | ----------- | ----------- |
